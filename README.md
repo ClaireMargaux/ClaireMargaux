@@ -11,4 +11,4 @@ Welcome to my ✨profile✨!
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: did I already tell you that I love talking about my dog?
 
-<img width="1703" height="2048" alt="IMG-20260412-WA0000" src="https://github.com/user-attachments/assets/a512497f-9a58-4604-bc61-6059fea4b615" />
+<img width="568" height="683" alt="IMG-20260412-WA0000" src="https://github.com/user-attachments/assets/a512497f-9a58-4604-bc61-6059fea4b615" />
